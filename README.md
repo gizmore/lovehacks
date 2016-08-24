@@ -11,3 +11,4 @@ Lovehack #7 - If you are in unanswered love, drinking beer only adds being drunk
 
 Lovehack #8 - If you want the world to change, care for your own household first.
 
+Lovehack #14 – Never read the cover of a book
