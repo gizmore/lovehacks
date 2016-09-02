@@ -14,3 +14,5 @@ Lovehack #8 - If you want the world to change, care for your own household first
 Lovehack #14 – Never read the cover of a book
 
 Lovehack #15 – Sometimes whistle how you wanna feel, instead of how you currently feel.
+
+Lovehack #16 – Life is like Software. It's better when it's free.
